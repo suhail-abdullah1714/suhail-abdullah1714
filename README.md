@@ -20,7 +20,7 @@
 - AI-Based Academic Mini Project
 
 ## 📫 Connect with Me
-- LinkedIn: https://linkedin.com/in/yourprofile
+- LinkedIn: https://linkedin.com/in/Muhammed Suhail
 
 
 <!--
